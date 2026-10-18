@@ -36,5 +36,5 @@ Un jour, elle se retrouve impliquée dans un incident à proximité de l'école 
 - Le rythme du montage : Lent et silencieux pendant les scènes de tension, puis rapide et chaotique pendant les scènes d'horreur et lorsque Darkside prend le contrôle d'Alya.
 - Un moodboard (3 à 5 images de référence) :+
 
-![Moodboard]![Uploading White and Blue Minimalist Mood Board Photo Collage.jpg…]
+![Moodboard]!https://canva.link/0sod7eq9rrd7wy0
 
